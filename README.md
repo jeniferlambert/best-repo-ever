@@ -1,3 +1,4 @@
 # best-repo-ever
 gitting ready...hahahaha
-git your act together
+gitting it together
+
